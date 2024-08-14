@@ -8,5 +8,7 @@ Meu nome é Bruna Melo
 
   ### Você entrar em contato comigo 📧
   
-0000125181427XSP@al.educcacao.sp.gov.br
+0000125181427XSP@al.educacao.sp.gov.br
 @brunaa.melloo
+
+![](https://media.tenor.com/4worYa3OdEoAAAAM/peach-goma-peach-goma-love.gif)
